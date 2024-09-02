@@ -8,5 +8,5 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I hate carrots. No particular reason, I just don't like it.
+⚡ Fun fact: I hate carrots. No particular reason, I just don't like them.
 
